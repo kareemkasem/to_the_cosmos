@@ -1,3 +1,5 @@
+## TO THE COSMOS !
+ 
  ###  Difference between creams, ointments?
 1. ointments have higher oil to water ratio (_about 80 percent_). you can find all formulation specifications [here](https://dermnetnz.org/topics/topical-formulations)
 2. ointments provide a _protective layer_ over the skin and allows for trapping more moisture due to being more hygroscopic.
